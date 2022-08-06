@@ -1,0 +1,1 @@
+# Fribgarlarni_aniqlash
